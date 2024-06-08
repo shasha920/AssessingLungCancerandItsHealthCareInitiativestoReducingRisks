@@ -2,4 +2,4 @@
 
 *Team Member: Hua Yang, Hua Yang, Jenny Lam, Olivia Malagon*<br>
 
-SUMMER 2024 
+*SUMMER 2024*<br>
